@@ -15,6 +15,7 @@ So In order to understand what we are seeing today, It is necessary to talk abou
 - Education
 - Healthcare
 - Broadcasting and media
+
 So as it can be seen in the list the digital economy has been evolving through time and as result we can take advantage of all the new technological advances, and make a better job in matter of the conditions of the enterprises, and the result of each of the different sectors. We can expect a better outcome every time that the digital economy evolves. Basically because it is backed in science and technology. 
 
 
